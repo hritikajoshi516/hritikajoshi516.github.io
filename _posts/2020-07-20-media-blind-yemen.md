@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Mainstream International Median turns a blind eye while Yemen suffers
+title: Mainstream International Media turns a blind eye while Yemen suffers
 date: 2020-08-17 13:00:00-0400
 ---
 
